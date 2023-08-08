@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Elapradoproject
-- 👀 I’m interested in communication and tecnology, let's change the status quo and traditional rules with information technology
+- 👀 I’m interested in communication and tecnology, let's change the status quo and traditional rules with information knowledge 
 - 🌱 I’m currently learning how to manage code projects
 - 💞️ I’m looking to collaborate on code experts and tech teams
 - 📫 How to reach me elapradoproject@gmail.com or @elapradoproject in all social media
